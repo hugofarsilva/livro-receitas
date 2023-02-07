@@ -11,6 +11,7 @@
 - 2 colheres de sopa de mostarda
 - champignon
 - bata palha e arroz branco para acompanhar
+- pimenta a gosto
 
 ### Modo de Preparo
 
